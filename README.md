@@ -5,5 +5,3 @@ Bem-vindo(a) ao meu portfólio pessoal! Aqui compartilho meus pensamentos e pref
 **Sobre mim:**
 
 *   Sou apaixonada por tudo que mantém sua essência, autenticidade, de forma harmoniosa com romantismo e amor.
-
-*   Procuro oportunidades em [mencione o tipo de trabalho que busca, se for o caso].
